@@ -1,4 +1,5 @@
-<?php
-hsdgvhjagsdhvj
+<?
+
+edchodovosadvm;lasj
 
 ?>
